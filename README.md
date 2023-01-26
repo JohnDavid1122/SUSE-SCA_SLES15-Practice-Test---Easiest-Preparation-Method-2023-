@@ -1,0 +1,1 @@
+# SUSE-SCA_SLES15-Practice-Test---Easiest-Preparation-Method-2023-
